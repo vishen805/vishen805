@@ -15,7 +15,7 @@
 
 - ⚡ Fun fact **I enjoy turning coding challenges into mini projects — it keeps me sharp and creative.**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me: victor805.shen@gmail.com</h3>
 <p align="left">
 </p>
 
